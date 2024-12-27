@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GuavaDealer
-- 👀 I’m interested in music
+- 🎵 I produce music
 - ⚡ Fun fact: I like guavas
 
 <!---
